@@ -1,2 +1,1 @@
-# sepanta.github.io
 
